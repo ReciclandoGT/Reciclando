@@ -1,2 +1,0 @@
-# Reciclando
-Reciclando Web
